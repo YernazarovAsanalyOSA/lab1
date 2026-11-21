@@ -1,0 +1,1 @@
+Yernazarov Asanaly Individual work
